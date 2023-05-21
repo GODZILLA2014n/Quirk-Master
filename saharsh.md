@@ -1,0 +1,1 @@
+If I come across a person who needs help, I would make friends with them and help them by playing board game, or video games, or just sitting down and talking to them.
